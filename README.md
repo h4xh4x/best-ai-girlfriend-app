@@ -44,4 +44,5 @@
 <h2>Future of AI Girlfriend Technology</h2>
 <p>The future looks promising with advancements in AI, machine learning, and the integration of virtual reality (VR) and augmented reality (AR), which will likely make the experience even more immersive and realistic. As these technologies evolve, they might become more integrated into everyday life, influencing not only personal relationships but also societal norms.</p>
 <p>The evolution of AI girlfriend apps highlights the blend of technology and human emotion, presenting both opportunities and challenges. As we navigate this complex landscape, the balance between embracing innovation and preserving human connection remains a pivotal focus of societal discourse.</p>
+A good <a href="https://www.reddit.com/r/aichatandporn/comments/1fbuhnb/i_tried_out_candy_ai_my_honest_review_for_reddit/">review of candy can be found here</a>
 </article>
